@@ -1,1 +1,3 @@
-having our five year anniversary dinner in paris then walking to the eiffel tower at night to see it sparkle
+
+### Travels
+I remember having our five-year anniversary dinner in Paris, then walking to the Eiffel tower at night to see it sparkle.
